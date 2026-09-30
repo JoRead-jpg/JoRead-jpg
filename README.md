@@ -63,4 +63,4 @@ Awarded: Spring 2020
 
 ## Additional Experience
 
-**Bartending — Various establishments 2021-2026**
+**Bartending — Various establishments 2021-2025**
